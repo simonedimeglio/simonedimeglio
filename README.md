@@ -1,6 +1,6 @@
-![hello, i'm Simone-min](https://user-images.githubusercontent.com/78272736/157855920-8ea87de6-5cf8-4cf2-b4f4-e046fd3a576a.png)
+![hello, i'm Simone](https://user-images.githubusercontent.com/78272736/157857169-14057de8-42f8-4ffb-a4c7-914143bc12ea.jpg)
 
-### 🏴‍☠️ Welcome!
+### 🏴‍☠️ Welcoooome!
 - 🙋🏻‍♂️ My name is Simone. 
 - 👾 I'm an ethical and "creative" freelance developer based in Tuscany (Italy).
 - 😏 My secret recipe & martial arts mix is made up of ******.
