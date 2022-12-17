@@ -2,10 +2,10 @@
 
 ![hey-sup?](https://user-images.githubusercontent.com/78272736/208242444-3a48e517-2766-47e8-979c-944b4329b00d.jpg)
 
-![im-simone](https://user-images.githubusercontent.com/78272736/208242550-7c916d10-b68f-473d-b688-2db79a54647a.jpg)
+![simone-here](https://user-images.githubusercontent.com/78272736/208253709-59de3f0a-3dd2-4b40-814d-70a4a0c56684.jpg)
 
-![freelance-web-dev](https://user-images.githubusercontent.com/78272736/208242671-026fa4cc-464e-4acb-a0ba-65d7be0dd28f.jpg)
+![freelance-im](https://user-images.githubusercontent.com/78272736/208253909-e09fdc22-037e-477c-a4a4-e8ae9494a6a4.jpg)
 
-![theboywhosurfstheweb](https://user-images.githubusercontent.com/78272736/208243788-f57498dd-6084-4e0e-a65a-59f0e6b58542.jpg)
+![surf](https://user-images.githubusercontent.com/78272736/208254020-885b3b35-a437-4f02-a7ce-8b3336977368.jpg)
 
 ![me](https://user-images.githubusercontent.com/78272736/208242731-51e681f9-7481-45ac-a539-e18423bbb1dd.jpg)
