@@ -6,4 +6,6 @@
 
 ![freelance-web-dev](https://user-images.githubusercontent.com/78272736/208242671-026fa4cc-464e-4acb-a0ba-65d7be0dd28f.jpg)
 
+![theboywhosurfstheweb](https://user-images.githubusercontent.com/78272736/208243788-f57498dd-6084-4e0e-a65a-59f0e6b58542.jpg)
+
 ![me](https://user-images.githubusercontent.com/78272736/208242731-51e681f9-7481-45ac-a539-e18423bbb1dd.jpg)
