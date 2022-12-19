@@ -4,7 +4,7 @@
 
 ![simone-here](https://user-images.githubusercontent.com/78272736/208253709-59de3f0a-3dd2-4b40-814d-70a4a0c56684.jpg)
 
-![freelance-im](https://user-images.githubusercontent.com/78272736/208253909-e09fdc22-037e-477c-a4a4-e8ae9494a6a4.jpg)
+![lines](https://user-images.githubusercontent.com/78272736/208386402-db9b706f-f507-4ba8-a5f4-3ba70dce4cde.jpg)
 
 ![surf](https://user-images.githubusercontent.com/78272736/208254020-885b3b35-a437-4f02-a7ce-8b3336977368.jpg)
 
